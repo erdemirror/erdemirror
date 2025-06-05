@@ -1,5 +1,4 @@
-## Хүн аймар зодооны түүх 
+## Kael the Invoker
 <img align="right" src="https://i.ibb.co/XrzKTf3C/Kael-thas-war3.jpg" alt="Kael" width=250 border="0">
 
-Одооны бацаануудын зодоон хийнэ ч гэж юу байхав ах нь багадаа 1000 хужаатай зэрэг зодолдоод бүгдийн нүдээд явуулж байж билээ. Тэгсэн маргааш нь шаулины 100 kung fu чид ирж азаа үзсэн юм. Би ч яахав дунд нь соно эргэж бүгдийн нүдэж гарав гэтэл араас нь шилийн голын шилэгдмэл дайчид болох 10 хунтайж ирж таарлаа шүү . Би ч 5 шараас офицер хүртэл ухрахаар шийдээд автуус зогсоогоод дотор нь суух гэтэл төмөр замын тэнгэрлэг 4 хаад дотор нь сууж таараад бас л нүдэлцэж авав. Би ч нилээн шархагдсан болохоор яалтчгүй *аалгуулаад ирлээ шүү. Тэгэхээр нь мистер Амарбатыг дуудаад систер Шагайтай хамт хүрээд ирэхээр нь гайхаад та 
- чинь яаж яваад? гэтэл долоовор хуруугаа уруул дээр нааснаа **чишшшшш** чимээгүй гэснээ нөгөө хужаа нарыг  00 цаас болтол нь зодоод салхинд хийсгэсэн юм даа.
+Quaz. Wex. Exort. The essence of a storm. The heart of a blizzard. The soul of a phoenix. After his people were broken and scattered to the corners of the earth, Kael was left with only the relics of his once great world. Thirsting for vengeance, he sold his own soul to Ner'Zhul, and in exchange acquired near limitless power. Taking on the mantle of the Blood Mages of old, the Invoker strode into war with nothing but the elements at his command. He can fuse the elements into deadly incantations, tearing apart the very heavens in his fury. His genius knows no bounds, and the Sentinel shall come to know the rage of the Invoker.
